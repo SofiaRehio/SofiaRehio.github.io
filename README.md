@@ -1,0 +1,7 @@
+- [https://SofiaRehio.github.io](https://SofiaRehio.github.io)
+- [https://medium.com/@SofiaRehio](https://medium.com/@SofiaRehio)
+- [https://www.quora.com/profile/Sofia-Rehio](https://www.quora.com/profile/Sofia-Rehio)
+- [https://www.reddit.com/user/BrightConfection4914/](https://www.reddit.com/user/BrightConfection4914/)
+- [https://www.youtube.com/channel/UC_k1VNu2tHKs7SOISQF8d1w](https://www.youtube.com/channel/UC_k1VNu2tHKs7SOISQF8d1w)
+- [https://x.com/SofiaRehio](https://x.com/SofiaRehio)
+- [https://www.pinterest.com/SofiaRehio/](https://www.pinterest.com/SofiaRehio/)
